@@ -1,0 +1,1 @@
+# 20241014_MIRDC_GenAI_Workshop
